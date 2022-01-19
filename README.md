@@ -9,7 +9,7 @@ Il a fait partie d'un groupe de dangereux criminel sévissant sur discord entre 
 
 
 
-Ce groupe consistait à un regroupement de marginaux qui cherhé à créer la peur chez les petites gens en se blaladent la nuit déguisé en animaux anthropomorphique
+Ce groupe consistait à un regroupement de marginaux qui cherhé à créer la peur chez les petites gens en se baladent la nuit déguisé en animaux anthropomorphique
 pour tabasser des gens (surtout des vieux).
 
 
